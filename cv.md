@@ -19,3 +19,6 @@
 + Assistant manager 3/15 - 11/15
 * Hotel "Hyatt Regency Moscow Petrovsky Park" Moscow, Russia
 + Club Lounge Manager 7/18 - 1/20
+
+##### Other Accomplishments:
+* Volunteer of English teacher for immigrants. Providence, RI 12/10-5/11
