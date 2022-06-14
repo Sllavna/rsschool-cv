@@ -1,9 +1,16 @@
 # Kira Sakhno
+#### Personal data
+* Born: on 25.07.1991. Ivashka, Russia
+* Nationality: Russian
+* Family status: Single
+* Address: Moscow, Russia
+
 #### Contacts
-*  +7 (906) 072-7279 / kiravsakhno@mail.ru
+* Phone: +7 (906) 072-7279 
+* e-mail: kiravsakhno@mail.ru
 
 #### Highlights of Qualification:
-*  Bilingual: Russian and English
+*  Bilingual: Russian (native) and English (C1)
 *  Detail-oriented with excellent organizational skills
 *  Fast learner, works well with others
 
