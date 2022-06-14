@@ -8,6 +8,7 @@
 #### Contacts
 * Phone: +7 (906) 072-7279 
 * e-mail: kiravsakhno@mail.ru
+* Discord: Sllavna#7686
 
 #### Highlights of Qualification:
 *  Bilingual: Russian (native) and English (C1)
